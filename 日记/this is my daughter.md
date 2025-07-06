@@ -1,1 +1,0 @@
-I love my daughter 。 she  is serven yaars old.
